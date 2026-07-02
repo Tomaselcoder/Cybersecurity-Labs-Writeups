@@ -21,4 +21,4 @@ Currently learning:
 - Currently working toward CompTIA Security+
 
 📫 Connect with me
-- LinkedIn: (link)
+- LinkedIn: www.linkedin.com/in/tomas-mendez-86455b394
